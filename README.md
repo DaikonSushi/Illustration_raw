@@ -7,4 +7,4 @@
 
 ![alt text](https://i0.hdslb.com/bfs/new_dyn/95454a84bd8dd323243362d6dd8c9e9a129202471.png)
 
-![alt text](http://unraid.zzzwork.tech:8999/images/2025/06/29/067f7d242798b802eb79c30c8fcacdf9129202471-1.png)
+![](https://img.daikonsushi.me/images/2025/06/29/067f7d242798b802eb79c30c8fcacdf9129202471-1690bc83acfb1a2c6.png)
